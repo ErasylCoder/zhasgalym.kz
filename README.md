@@ -1,0 +1,2 @@
+# zhasgalym.kz
+hhhfgh
